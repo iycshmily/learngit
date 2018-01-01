@@ -1,5 +1,5 @@
-I love study
+We were very happy yestaday to meet a lot of friends 
+and enjoy the first night together.
 
-I don't want to leave you 
-
-I don't know how to choose and what to expect from this experience 
+When we get back home, we started to tell each
+other some feelings from heart 
